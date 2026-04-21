@@ -182,10 +182,10 @@ To build scalable detection and response systems that improve security visibilit
 ## 📬 Contact
 
 LinkedIn:  
-Add your link here  
+www.linkedin.com/in/darshaksolanki 
 
 Email:  
-Add your email here
+darshaksolanki007@gmail.com
 
 ---
 
